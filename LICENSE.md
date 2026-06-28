@@ -1,4 +1,4 @@
-# 
+# Ultimato Revo Uninstaller scripts para Mac OS | Atualizado Revo Uninstaller scripts para PC Windows. Com ajuste de CPU e auditorias de seguranca — otimizado para máximo desempenho em cada plataforma.
 
 
 
